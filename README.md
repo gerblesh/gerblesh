@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gerblesh
-- 👀 I’m interested in dn
-- 🌱 I’m currently doing your mom
-- 💞️ I’m looking to collaborate on dn
+- 👀 I’m do things
+- 🌱 I’m currently doing things
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How do you reach me? Don't.
